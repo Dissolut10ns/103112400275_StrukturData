@@ -1,1 +1,1 @@
-kosong jir 2x
+kosong jir
